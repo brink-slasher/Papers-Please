@@ -218,4 +218,4 @@ Papers, Please is available as the full free version with all features and updat
 Don’t miss out on the opportunity to step into the shoes of an immigration officer. **Download Papers, Please now and experience the challenge!**
 
 ---
-**Last updated:** 2026-09-17 09:46:00 UTC
+**Last updated:** 2026-09-17 14:34:31 UTC
